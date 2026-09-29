@@ -1,1 +1,0 @@
-# Certificate-of-Competency-Verification---Seafarer-Document
